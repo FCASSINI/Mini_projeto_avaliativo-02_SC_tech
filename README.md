@@ -1,0 +1,1 @@
+# Mini_projeto_avaliativo-02_SC_tech
